@@ -2,10 +2,10 @@
 
 ## Contacts:
    * mob: +380677692102
-   * telegram: @angrythunderbird
+   * telegram: [angrythunderbird](https://t.me/angrythunderbird)
    * email: headrab.albert@gmail.com
    * github: [angrythunderbird](https://github.com/angrythunderbird)
-   * discord: Albert#0829
+   * discord: [Albert#0829](https://discord.gg/Trsr4JyXaH)
 
 ## About myself
    Now I am a 9 to 5 office worker in sales. This job is not what I want to do in life. I strive to get an IT education because I prefer deep, focused work.
